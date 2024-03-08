@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Rilabug
 - You can reach me on Discord, username is "rilabug".
-- Twitter is @RilaGaming
+- Twitter is @Deleted Account
 - YouTube is @Rilabug
