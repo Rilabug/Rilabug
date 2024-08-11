@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @Rilabug
 - You can reach me on Discord, username is "rilabug".
-- Twitter is @Deleted Account
-- YouTube is @soldier-gaming321
+- YouTube is @blue-spy-j4g
