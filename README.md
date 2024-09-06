@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Rilabug
-- You can reach me on Discord, username is "rilabug".
+- You can reach me on Discord, username is "opticalmediagood".
 - YouTube is @blue-spy-j4g
