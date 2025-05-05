@@ -3,4 +3,5 @@
 - YouTube is @blue-spy-j4g
 - Twitter (don't have one)
 - Twitch is twitch.tv/BLUSpyj4g. Please don't watch any of the streams on any of the channels.
-- Autistic web developer
+- I have ADHD and Autism, if I do respond to either your Discord DM or issue on any of my repositories, be patient with me.
+- Web developer, wanting to make a game in Unity
